@@ -1,0 +1,1 @@
+# Shopify-Landing-page-that-links-with-klaviyo-email-list.
